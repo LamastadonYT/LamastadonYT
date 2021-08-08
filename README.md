@@ -1,0 +1,5 @@
+- 👋 Hi, je suis @LamastadonYT
+- 👀 youtubeur
+- 🌱 français
+- 💞️ amateur
+- 📫intéressé par le code et le gaming
